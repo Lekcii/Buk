@@ -33,3 +33,8 @@ ex???   close-up\‘  cowboyshot  Full Shot
 
 Long shot   Extreme long  Екстра???льной
 общий план  shot          общий
+
+---
+
+[Вопрос из зала:]
+- А пиротехник есть сегодня?
